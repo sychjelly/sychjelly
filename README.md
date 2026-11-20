@@ -1,5 +1,4 @@
-what the fuck cuh i'm gonna explode
-I HATE CODING RAAAHH RAHHHHHH
+let  me cook.. except i've burnt down 30 kitchens in my lifetime
 
 <!---
 sychjelly/sychjelly is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
